@@ -16,14 +16,14 @@
 - Highlight key achievements or projects.
 - Mention any leadership or team collaboration.
 
-**CPL @ Twitter, Dublin, Ireland** — Previous Job Title  
+**Twitter - CPL, Dublin, Ireland** — Previous Job Title  
 *Month Year* - *Month Year*
 
 - Brief description of your role and responsibilities.
 - Highlight key achievements or projects.
 - Mention any leadership or team collaboration.
 
-**Another Company, Another City** — Another Job Title  
+**Facebook - Accenture, Dublin, Ireland** — Another Job Title  
 *Month Year* - *Month Year*
 
 - Brief description of your role and responsibilities.
